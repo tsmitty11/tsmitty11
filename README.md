@@ -1,3 +1,9 @@
-# Full-Stack Creative Director 😎
+# Full-Stack Creative Maverick 😎
 
-### Currently doing awesome design things for [tea](https://tea.xyz) and [pkgx](https://pkgx.dev)
+* Art/Creative Direction
+* Graphic Design
+* Web Development
+* Motion Graphics
+* Video Editing
+
+View portfolio at [hiretomsmith.com](https://hiretomsmith.com). 
