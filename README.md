@@ -1,4 +1,4 @@
-# Tom Smith
+# Tom Smith Design
 
 Creative Director & Designer. Artist & Illustrator. Off-and-on Digital Nomad.
 
