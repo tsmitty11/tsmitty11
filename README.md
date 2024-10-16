@@ -2,7 +2,7 @@
 
 Creative Director & Designer. Artist & Illustrator. Off-and-on Digital Nomad.
 
-Currently fielding new gigs.
+Email tom@hiretomsmith.com for inquiries.
 
 ## Portfolio
 [tomsmith.design](https://tomsmith.design)
